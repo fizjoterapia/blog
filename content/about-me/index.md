@@ -11,7 +11,7 @@ title: O mnie
 [![](https://fizjoterapia-rzeszow.com.pl/wp-content/uploads/2017/02/16196058_1761340967526362_4707656253919616208_n-1-300x300.jpg)
 ](https://fizjoterapia-rzeszow.com.pl/wp-content/uploads/2017/02/16196058_1761340967526362_4707656253919616208_n-1.jpg)
 
-Jestem magistrem fizjoterapii. W 2020 roku po ukończeniu programu specjalizacji na Uniwersytecie Medycznym im. Karola Marcinkowskiego w Poznaniu i zdaniu Państwowego Ezaminu uzyskałam tytuł Specjalisty w dziedzinie Fizjoterapia.
+Jestem magistrem fizjoterapii. W 2020 roku po ukończeniu 4-letniego programu specjalizacji na Uniwersytecie Medycznym im. Karola Marcinkowskiego w Poznaniu i zdaniu Państwowego Ezaminu uzyskałam tytuł Specjalisty w dziedzinie Fizjoterapia.
 
 Ukończyłam studnia magisterskie z fizjoterapii na Uniwersytecie Rzeszowskim, studia podyplomowe na kierunku Zarządzanie Podmiotami Leczniczymi, Pedagogikę w Ochronie Zdrowia oraz studia licencjackie na kierunku Zdrowie Publiczne ze specjalnością Kosmetologia ogólna.
 
