@@ -1,6 +1,6 @@
 ---
 author: joanna
-date: 2021-03-02 08:03:02+00:00
+date: 2022-03-02 08:03:02+00:00
 draft: false
 title: Uprawnienia Brytyjskie
 ---
