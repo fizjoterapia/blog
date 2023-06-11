@@ -5,9 +5,9 @@ draft: false
 title: Taśma Kinezjologiczna
 ---
 
-[Link do zakupu na Amazon - 1](https://amzn.to/42uschD)
-[Link do zakupu na Amazon - 2](https://amzn.to/3NnJhFG)
-[Link do zakupu na Amazon - 3](https://amzn.to/3NmPDFh)
+- [Link do zakupu na Amazon - 1](https://amzn.to/42uschD)
+- [Link do zakupu na Amazon - 2](https://amzn.to/3NnJhFG)
+- [Link do zakupu na Amazon - 3](https://amzn.to/3NmPDFh)
 
 Kinesiotaping, znane również jako kinezjologia stosowana, jest techniką terapeutyczną polegającą na aplikacji elastycznego plastra, zwanego kinesio tape, na skórę w celu wsparcia i stabilizacji mięśni, stawów i tkanek. Kinesio tape składa się z elastycznego materiału, który jest przepuszczalny dla powietrza i wodoodporny.
 
