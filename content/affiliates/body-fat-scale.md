@@ -5,7 +5,7 @@ draft: false
 title: Waga z pomiarem tkanki tłuszczowej
 ---
 
-- [Link do zakupu na Amazon](https://amzn.to/42B7vRo)
+- [Link do zakupu na Amazon](https://amzn.to/3XQmUMR)
 
 Wagi do mierzenia tkanki tłuszczowej działają na zasadzie analizy impedancji bioelektrycznej (BIA). BIA jest nieinwazyjną metodą pomiaru składu ciała, która opiera się na przesyłaniu niewielkiego prądu przez organizm i pomiarze oporu, jaki ten prąd napotyka.
 
