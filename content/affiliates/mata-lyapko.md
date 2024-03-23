@@ -5,7 +5,7 @@ draft: false
 title: Mata z igłami metalowymi
 ---
 
-[Link do zakupu na Amazon](https://amzn.to/43QFBSu)
+[Link do zakupu na Amazon](https://amzn.to/3x5OP1X)
 
 Zarówno pod kątem efektywności jak i siły oddziaływania oraz wielokierunkowości nie istnieją produkty analogiczne do aplikatorów Lyapko. Ich proste użycie oraz skuteczność w działaniu sprawia, że sięga po nie coraz więcej osób – w szczególności fizjoterapeutów.
 

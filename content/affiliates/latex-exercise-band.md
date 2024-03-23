@@ -5,9 +5,7 @@ draft: false
 title: Taśmy oporowe
 ---
 
-- [Link do zakupu na Amazon - 1](https://amzn.to/3N4oFkE)
-- [Link do zakupu na Amazon - 2](https://amzn.to/3qAGO1Z)
-- [Link do zakupu na Amazon - 3](https://amzn.to/3qBWIcm)
+- [Link do zakupu na Amazon - 1](https://amzn.to/4ar9GLK)
 
 Resistance Bands, znane również jako taśmy oporowe, to elastyczne taśmy wykonane z gumy lub lateksu, które są używane do treningu siłowego i wzmacniania mięśni. Taśmy oporowe oferują różne poziomy oporu, w zależności od koloru lub grubości, co umożliwia dostosowanie intensywności treningu do indywidualnych potrzeb i poziomu zaawansowania.
 

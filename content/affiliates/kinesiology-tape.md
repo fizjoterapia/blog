@@ -5,9 +5,9 @@ draft: false
 title: Taśma Kinezjologiczna
 ---
 
-- [Link do zakupu na Amazon - 1](https://amzn.to/42uschD)
-- [Link do zakupu na Amazon - 2](https://amzn.to/3NnJhFG)
-- [Link do zakupu na Amazon - 3](https://amzn.to/3NmPDFh)
+- [Link do zakupu na Amazon - 1](https://amzn.to/3IVZmzj)
+- [Link do zakupu na Amazon - 2](https://amzn.to/3TNJcOJ)
+- [Link do zakupu na Amazon - 3](https://amzn.to/499IsZ1)
 
 Taśma kinezjologiczna, znana również jako kinesiotaping lub kinesiology tape, to elastyczna taśma samoprzylepna stosowana w celach terapeutycznych i sportowych. Taśma kinezjologiczna została opracowana w latach 70. przez japońskiego chiropraktyka, dr Kenzo Kase.
 

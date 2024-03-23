@@ -5,8 +5,8 @@ draft: false
 title: Bańki silikonowe
 ---
 
-- [Link do zakupu na Amazon - 1](https://amzn.to/3Npu1sa)
-- [Link do zakupu na Amazon - 2](https://amzn.to/3NnHIYx)
+- [Link do zakupu na Amazon - 1](https://amzn.to/3PDAQqz)
+- [Link do zakupu na Amazon - 2](https://amzn.to/3PDAS1F)
 
 Bańki silikonowe są wykorzystywane w terapii bańkami (cupping therapy) w celach terapeutycznych i relaksacyjnych. Oto kilka głównych zastosowań bańek silikonowych:
 

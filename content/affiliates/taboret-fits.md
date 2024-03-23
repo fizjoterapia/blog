@@ -5,7 +5,7 @@ draft: false
 title: Taboret do FITS
 ---
 
-[Link do zakupu na Amazon](https://amzn.to/43BEV3I)
+[Link do zakupu na Amazon](https://amzn.to/4a5lbZr)
 
 Taboret jest jednym z wielu narzędzi, które można wykorzystać w terapii skoliozy metodą FITS. Jest to specjalne siedzisko, które pomaga pacjentowi utrzymać prawidłową postawę podczas wykonywania ćwiczeń terapeutycznych.
 

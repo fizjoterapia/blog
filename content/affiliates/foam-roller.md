@@ -5,8 +5,8 @@ draft: false
 title: Foam Roller
 ---
 
-- [Link do zakupu na Amazon - 1](https://amzn.to/42B7vRo)
-- [Link do zakupu na Amazon - 2](https://amzn.to/3X2c5a7)
+- [Link do zakupu na Amazon - 1](https://amzn.to/3TxGVWV)
+- [Link do zakupu na Amazon - 2](https://amzn.to/3PveEyX)
 
 Foam Roller, znany również jako wałek do masażu lub wałek piankowy, to cylindryczne narzędzie treningowe i masujące, które znajduje zastosowanie w różnych dziedzinach, w tym w fitnessie, rehabilitacji fizycznej i masażu. Składa się z gęstej piankowej rury o różnej twardości i gładkiej powierzchni.
 
